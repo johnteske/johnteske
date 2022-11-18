@@ -1,1 +1,1 @@
-Migrating to https://sr.ht/~johnteske/
+Find my personal work at https://sr.ht/~johnteske/
